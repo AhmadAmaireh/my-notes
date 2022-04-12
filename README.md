@@ -10,4 +10,4 @@ I was worked in many of company a Quality Assurance for 7 year same:
 2. ITC-International Group’s for 4 yaer.
 
 
-Now i hope to learining JavaScript to change my work form Quality Assurance to programmer.
+Now i hope to learining JavaScript in LTUC to change my work form Quality Assurance to programmer.
